@@ -1,2 +1,0 @@
-# smr
-Sierra Metals Recycling
